@@ -1,0 +1,1 @@
+# adam-fadly_2306031_Praktikum_AI_2
